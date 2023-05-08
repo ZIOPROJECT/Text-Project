@@ -6,6 +6,9 @@
 
 ## Pertemuan kedua
 Daftar hadir Pemrograman Visual pertemuan kedua praktisi mengajar
-1. 
+
+1. Muhammad Rizaldi Lathif
+
 2. 
+
 3. 
