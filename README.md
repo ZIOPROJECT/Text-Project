@@ -6,6 +6,6 @@
 
 ## Pertemuan kedua
 Daftar hadir Pemrograman Visual pertemuan kedua praktisi mengajar
-1. Muhammad Rizky Bachtiar
-1. Adrian Ravaliano Wibowo
-1. Rafi Adham Abdullah
+1. 
+2. 
+3. 
